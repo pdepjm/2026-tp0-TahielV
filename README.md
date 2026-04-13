@@ -1,6 +1,18 @@
-Hola me llamo Tahiel (legajo 234.250-9, comisión K2104), tengo 19 años, soy de mataderos hincha de River principalmente pero simpatizo por chicago (x mi barrio), juego mucho a la play (cuando tengo tiempo, hoy ya no tanto) como ow, rl y fn es lo que mas juego hoy en dia, pero si me preguntas cuál o cuáles son mis juegos favoritos te diria todos los God Of War (el mejor es el 3), tmb juego a los juego de celu como clash y brawl. Escucho todo tipo de musica, pero mi tipo de musica favorita es el rock y reggae (SUMO es mi banda favorita) quizas para escuchar estando chill y estudiando, pero tambien soy de escuchar mucho CrisMJ y estilo chileno. Voy al gym de onda pero no me gusta mucho, hacia boxeo que era lo que mas me entretenia pero lo tuve que dejar por tema horarios, igualmente me hubiese gustado hacer MMA. Mi meta es recibirme de ing. lo antes posible mientras lo disfruto y ejercer alguna rama de preferencia ciberseguridad pero estaria dispuesto a probar cualquier otra rama sobre el rubro.
+## Me llamo Tahiel (legajo 234.250-9, comisión K2104)
 
+### Sobre mi:
+Tengo 19 años, soy de mataderos hincha de River principalmente pero simpatizo por chicago (x mi barrio)
 
+### Mis Gustos en general:
+Juego mucho a la play (cuando tengo tiempo, hoy ya no tanto) como ow, rl y fn es lo que mas juego hoy en dia, pero si me preguntas cuál o cuáles son mis juegos favoritos te diria todos los God Of War (el mejor es el 3), tmb juego a los juego de celu como clash y brawl. Voy al gym de onda pero no me gusta mucho, hacia boxeo que era lo que mas me entretenia pero lo tuve que dejar por tema horarios, igualmente me hubiese gustado hacer MMA.
+
+### Gustos musicales:
+Escucho todo tipo de musica, pero mi tipo de musica favorita es el rock y reggae (SUMO es mi banda favorita),o bob marley, UB40 y oasis quizas para escuchar estando chill y estudiando, pero tambien soy de escuchar mucho CrisMJ y estilo chileno. 
+
+### Metas:
+Mi meta es recibirme de ing. lo antes posible mientras lo disfruto y ejercer alguna rama de preferencia ciberseguridad pero estaria dispuesto a probar cualquier otra rama sobre el rubro.
+
+##
 Hola puedo caer asi a la cursada?
 
 <img width="300" height="400" alt="yoEnLaMateria" src="https://github.com/user-attachments/assets/751f0f6e-c348-4b1b-8b21-bdfc393c4d7c" />
