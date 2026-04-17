@@ -1,16 +1,17 @@
-## Me llamo Tahiel (legajo 234.250-9, comisión K2104)
+### Sobre Mi
+Me llamo Tahiel (Legajo: 234.250-9 | Comisión: K2104)
+Sobre mí:
+Tengo 19 años y soy de Mataderos. Soy hincha de **River** principalmente, pero también simpatizo por Chicago por mi barrio.
 
-### Sobre mi:
-Tengo 19 años, soy de mataderos hincha de River principalmente pero simpatizo por chicago (x mi barrio)
-
-### Mis Gustos en general:
-Juego mucho a la play (cuando tengo tiempo, hoy ya no tanto) como ow, rl y fn es lo que mas juego hoy en dia, pero si me preguntas cuál o cuáles son mis juegos favoritos te diria todos los God Of War (el mejor es el 3), tmb juego a los juego de celu como clash y brawl. Voy al gym de onda pero no me gusta mucho, hacia boxeo que era lo que mas me entretenia pero lo tuve que dejar por tema horarios, igualmente me hubiese gustado hacer MMA.
+### Mis gustos en general:
+Juego mucho a la Play (cuando tengo tiempo, hoy ya no tanto); lo que más juego hoy en día es **OW**,**RL** y **FN**. Pero si me preguntás cuáles son mis juegos favoritos, te diría todos los God of War (el 3 es el mejor). También juego juegos de celu como Clash y Brawl.
+Voy al gym "de onda" pero no me gusta mucho; hacía Boxeo, que era lo que más me entretenía, pero lo tuve que dejar por temas de horario. Igualmente, me hubiese gustado hacer MMA. Me encantan los autos y manejar, me gustaria tener un golf gti. 
 
 ### Gustos musicales:
-Escucho todo tipo de musica, pero mi tipo de musica favorita es el rock y reggae (SUMO es mi banda favorita),o bob marley, UB40 y oasis quizas para escuchar estando chill y estudiando, pero tambien soy de escuchar mucho CrisMJ y estilo chileno. 
+Escucho todo tipo de música, pero mi favorita es el Rock y Reggae (Sumo es mi banda preferida). También escucho a Bob Marley, UB40 y Oasis para estar chill o estudiando, aunque también soy de escuchar mucho a Cris MJ y el estilo chileno.
 
 ### Metas:
-Mi meta es recibirme de ing. lo antes posible mientras lo disfruto y ejercer alguna rama de preferencia ciberseguridad pero estaria dispuesto a probar cualquier otra rama sobre el rubro.
+Mi meta es recibirme de Ingeniero lo antes posible mientras disfruto el proceso. Aspiro a ejercer en alguna rama del rubro, preferentemente en Ciberseguridad, aunque estoy dispuesto a probar cualquier otra área.
 
 ##
 Hola puedo caer asi a la cursada?
